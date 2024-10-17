@@ -1,4 +1,5 @@
 Output
 
 
-![output](https://github.com/user-attachments/assets/a353b167-f032-4288-97bb-f5aa1eff5fbf)
+
+![Capture](https://github.com/user-attachments/assets/9310c9c6-a8ca-4ed2-a20f-4f0a95341883)
